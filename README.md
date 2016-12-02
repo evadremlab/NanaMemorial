@@ -1,1 +1,1 @@
-Memorial website for Nana Obenewa Turkson
+Memorial for Nana Obenewa Turkson
